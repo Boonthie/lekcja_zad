@@ -6,3 +6,7 @@ janek adam
 
 oj oskar nie ladnie ze cie widzialem wczoraj z kolega jak szles z nim za reke, widze ze cieplo w rodzinie zostaje
 123 123 123 123 123 123 123 123 123 
+
+
+
+oski to rickens 123
